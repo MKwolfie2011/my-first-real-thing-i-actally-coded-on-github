@@ -1,2 +1,2 @@
 # my-first-real-thing-i-actally-coded-on-github
-idk
+i have no idea what im doing so i hope i make somthing
